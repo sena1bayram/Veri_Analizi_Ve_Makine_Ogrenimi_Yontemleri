@@ -1,0 +1,1 @@
+# Veri_Analizi_Ve_Makine_Ogrenimi_Yontemleri
